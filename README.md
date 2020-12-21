@@ -1,12 +1,12 @@
 ##### :sunglasses::sunglasses:最新发布地址:sunglasses::sunglasses:
 
-##### :heart: :point_right: 【地址一】 ：https://lxtv01.xyz
+##### :heart: :point_right: 【地址一】 ：https://lstv01.xyz
 
-##### :heart: :point_right: 【地址二】 ：https://lxtv02.xyz
+##### :heart: :point_right: 【地址二】 ：https://lstv02.xyz
 
-##### :heart: :point_right: 【地址三】 ：https://lxtv03.xyz
+##### :heart: :point_right: 【地址三】 ：https://lstv03.xyz
 
-##### :heart: :point_right: 【永久发布页】 ：https://lxtv.xyz
+##### :heart: :point_right: 【永久发布页】 ：https://lstv.xyz
 
 ##### :heart: :point_right: 【邮箱联系方式】 ：jierbufangjia@gmail.com
 
